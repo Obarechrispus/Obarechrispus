@@ -1,3 +1,1 @@
-hi my name is Moraa
-I love mathematics and pysics
-This is my first day here
+Hi There, Call me Dev Chris and am excited to help you in your tech journey, for partnership reach out on <obarechrispus@gmail.com>
